@@ -6,4 +6,4 @@ Do you want to find a small vtuber that plays factorio and speaks Thai?
 
 Want to see another vtubr play your favorite indie game?
 
-This will be the service for you. 
+This will be the website where you can find that. 
